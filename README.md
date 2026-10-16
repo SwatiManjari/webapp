@@ -111,4 +111,3 @@ For questions, feedback, or suggestions, please contact
 
 [Mailto -Rao K ](mailto:kbhethan@yahoo.com)
 
-[Whatsapp](https://wa.me/+14083901725)
